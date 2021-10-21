@@ -1,0 +1,1 @@
+# mrfrizqy.github.io
